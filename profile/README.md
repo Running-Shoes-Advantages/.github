@@ -8,7 +8,7 @@
 
 ## What Are the Key Advantages of Running Shoes?
 
-You can find the best shoes curated by Hrishikesh Jadhav at [Get best sports shoes deals here at:](https://wyreconnect.com/)
+You can find the best shoes curated by Hrishikesh Jadhav at [Get best sports shoes deals here:](https://wyreconnect.com/)
 
 Running shoes come with numerous benefits that can make a significant difference in your running experience:
 
